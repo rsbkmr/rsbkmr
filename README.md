@@ -2,4 +2,4 @@
 
 ## I'm a _Developer_.
 
-[LinkedIn](https://linkedin.com/in/rsbkmr)
+[Hire me](https://linkedin.com/in/rsbkmr)
